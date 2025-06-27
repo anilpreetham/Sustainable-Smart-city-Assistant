@@ -1,1 +1,0 @@
-# Sustainable-Smart-city-Assistant
